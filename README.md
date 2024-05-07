@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Flavin777catlover
+- 👀 I’m interested in learning how to program
+- 🌱 I’m currently learning Lua
+- 💞️ I’m looking to collaborate on nothing rn
+- 📫 How to reach me: discord = number1catsfan
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I started learning 7/4/2024
